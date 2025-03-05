@@ -3,7 +3,7 @@
 # 东城区
 
 ## 西城区
-[May 9th Class One-minute Summaries](https://sso.canvaslms.com/courses/1924881/assignments/14377751)
+
 
 ## 朝阳区
 ### 伊莎
@@ -34,17 +34,16 @@
 <img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## 丰台区
-[Elements of User Experience by Jesse James Garrett](https://qofr.files.wordpress.com/2016/11/q-of-r-presentation-11.pdf)
-<div class="responsive-container"><iframe src="https://docs.google.com/viewer?url=https://qofr.files.wordpress.com/2016/11/q-of-r-presentation-11.pdf&embedded=true" style="width:780px; height:585px;" frameborder="0"></iframe></div>
+
 
 ## 石景山区
-[Course Overview](https://sso.canvaslms.com/courses/1924881/files/folder/Downloads/Course%20Overview)  
+
 
 ## 海淀区
-<a class="embedly-card" data-card-controls="0" data-card-align="left" href="https://www.nngroup.com/articles/usability-101-introduction-to-usability/">Usability 101: Introduction to Usability</a>
+
 
 ## 顺义区
-[Course Overview](https://sso.canvaslms.com/courses/1924881/files/folder/Downloads/Course%20Overview)  
+
 
 ## 通州区
 
