@@ -1,4 +1,4 @@
-![UX - User Experience](images/beijing.jpg ':class=banner-image')
+![UX - User Experience](images/beijing.png ':class=banner-image')
 ![Flowchart](images/beijing.jpg ':class=banner-image')
 
 # What is usability and user experience design?
