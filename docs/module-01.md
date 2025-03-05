@@ -118,7 +118,19 @@
 <img src="images/bjs_cy_my2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## 丰台区
-
+### 韩冰
+- ❤️韩冰 ：嫩模
+- ❤️162/23岁/95斤/天然C杯
+- ❤️属于欧韩时尚小清新型，颜值爆表，乖巧听话，fw到位，配合度高，主动fs。
+- 🎁服务：陪浴/水中萧/胸推/口灌/臀疗/冰火过水漫游/高山流水/69/KB/DL纹/制服/丝袜/高跟诱惑/各种啪啪
+- ⚠️禁止：皮肤病，没素质，醉酒。
+- 💰一次1500/60分钟
+- 💰两次3000/90分钟
+- 🏦工作室：丰台
+<img src="images/bjs_ft_hb.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_hb1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_hb2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_hb3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## 石景山区
 
