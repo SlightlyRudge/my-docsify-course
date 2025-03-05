@@ -1,4 +1,4 @@
-![UX - User Experience](images/beijing.png ':class=banner-image')
+![UX - User Experience](beijingshi/bjs.png ':class=banner-image')
 
 # 东城区
 
@@ -17,8 +17,8 @@
 - 💰1500/60分钟以上服务
 - 💰2200/90分钟以上服务
 - 🏦工作室：朝阳区周家庄附近（不上门）
-<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
-<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="beijingshi/cy_yisha1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="beijingshi/cy_yisha2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 ### 伊莎
 - ❤️伊莎 ：服务系鼻祖
 - ❤️164/95/28岁/b+
