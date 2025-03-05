@@ -25,3 +25,7 @@
 <a class="embedly-card" data-card-controls="0" data-card-align="left" href="[https://www.nngroup.com/articles/usability-101-introduction-to-usability/](https://github.com/SlightlyRudge/my-docsify-course/blob/main/docs/images/1.jpg?raw=true)">Usability 101: Introduction to Usability</a>
 ![UX - User Experience](images/1.jpg ':class=banner-image')
 
+# 📌 UX - User Experience
+
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
