@@ -67,6 +67,23 @@
 <img src="images/bjs_cy_zjj4.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_cy_zjj5.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
+### 小雅雅
+- ❤️小雅雅
+- ❤️06年/169/c杯
+- ❤️我是浙江人
+- ❤️声音软软糯糯的很好，胸大屁股大水多，高潮时偶尔会潮喷，我有十多种道具，可以接受轻微SM！欢迎哥哥过来体检。
+- 🎁服务内容：陪浴/冰火口吹/支付/胸推/毒龙/臀推/调情/SM/以及各种姿势激情啪啪等！
+- 🎁SM内容：肛交/艳舞挑逗/双洞插/捆绑/手铐/鞭打/滴蜡/各种道具丝袜/高跟鞋情趣用品/制服各种角色扮演/激情强奸顶级服务/包哥哥回头。
+- ❗️ 注意(三通+200，SM道具)希望哥哥们调教我和我一起体验刺激人生。
+- ❗️照片是本人，不是本人可以当面骂人。
+- ⚠️温馨提示：拒绝有暴力伤人倾向的别来，拒绝吃药，拒绝桩基，喷药，无套，醉酒，皮肤病。注：课表看清楚。
+- 💰一次1400/40分钟
+- 💰二次2000/90分钟
+- 🏦地点：朝阳区富顿中心D座(不接外出)
+<img src="images/bjs_cy_xyy.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_xyy1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_xyy2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
 ## 丰台区
 
 
