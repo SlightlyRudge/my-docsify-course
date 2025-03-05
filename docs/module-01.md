@@ -23,9 +23,5 @@
 
 ## 伊莎
 <a class="embedly-card" data-card-controls="0" data-card-align="left" href="[https://www.nngroup.com/articles/usability-101-introduction-to-usability/](https://github.com/SlightlyRudge/my-docsify-course/blob/main/docs/images/1.jpg?raw=true)">Usability 101: Introduction to Usability</a>
-<video width="640" height="360" controls>
-  <source src="https://github.com/SlightlyRudge/my-docsify-course/raw/refs/heads/main/docs/images/IMG_8451.MP4" type="video/mp4">
-  您的浏览器不支持 HTML5 视频播放，请手动下载：
-  <a href="https://github.com/SlightlyRudge/my-docsify-course/raw/refs/heads/main/docs/images/IMG_8451.MP4">点击下载</a>
-</video>
+![UX - User Experience](images/1.jpg ':class=banner-image')
 
