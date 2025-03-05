@@ -21,7 +21,7 @@
 ## Downloads
 [Course Overview](https://sso.canvaslms.com/courses/1924881/files/folder/Downloads/Course%20Overview)  
 
-## 伊莎
+## 朝阳区
 - ❤️伊莎 ：服务系鼻祖
 - ❤️164/95/28岁/b+
 - ❤️来自大连 ，性格开朗，温柔体贴，喷水可以射到一米远
@@ -34,7 +34,7 @@
 - 🏦工作室：朝阳区周家庄附近（不上门）
 <img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
-### 啦啦啦啦
+### 伊莎
 - ❤️伊莎 ：服务系鼻祖
 - ❤️164/95/28岁/b+
 - ❤️来自大连 ，性格开朗，温柔体贴，喷水可以射到一米远
