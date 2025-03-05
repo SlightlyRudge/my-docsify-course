@@ -19,7 +19,8 @@
 - 🏦工作室：朝阳区周家庄附近（不上门）
 <img src="images/bjs_cy_yisha1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_cy_yisha2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
-### 伊莎
+
+### 渝娜
 - ❤️渝娜
 - ❤️26岁/168/49kg
 - ❤️来自重庆
