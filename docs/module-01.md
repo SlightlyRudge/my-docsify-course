@@ -1,4 +1,4 @@
-![UX - User Experience](images/北京.jpg ':class=banner-image')
+![UX - User Experience](images/beijing.jpg ':class=banner-image')
 
 # What is usability and user experience design?
 
