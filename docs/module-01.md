@@ -1,4 +1,4 @@
-![UX - User Experience](beijingshi/bjs.png ':class=banner-image')
+![UX - User Experience](beijingshi/bjs.png':class=banner-image')
 
 # 东城区
 
