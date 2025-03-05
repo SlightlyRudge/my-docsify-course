@@ -1,4 +1,4 @@
-![UX - User Experience](12650723674_d5c85af332_k.jpg':class=banner-image')
+![UX - User Experience](images/12650723674_d5c85af332_k.jpg':class=banner-image')
 
 # 东城区
 
