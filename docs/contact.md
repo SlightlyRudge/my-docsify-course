@@ -1,4 +1,4 @@
-# Contact
+# 联系方式
 
 ## Course Instructor  
 Some Name  
