@@ -84,6 +84,21 @@
 <img src="images/bjs_cy_xyy1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_cy_xyy2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
+### 笑笑
+- ❤️笑笑
+- ❤️26/166/B
+- ❤️特点：态度热情，积极主动，不冷场。
+- 🎁服务：陪浴/调情/69/无T吹/丝袜诱惑/舌尖漫游/指滑环游/花样啪啪/姿势多多/欢迎哥哥解锁
+- 👍不催钟，姿势配合，有课室。
+- ⚠️禁止：无套，酒驾
+- 💰一次800/50分钟
+- 💰两次1300/90分钟
+- 💰夜2600/11-8点
+- 🏦工作室：九龙山
+<img src="images/bjs_cy_xx.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_xx1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_xx2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
 ## 丰台区
 
 
