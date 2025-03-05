@@ -1,5 +1,6 @@
 ![UX - User Experience](images/12650723674_d5c85af332_k.jpg':class=banner-image')
-
+![Flowchart](images/12650723674_d5c85af332_k.jpg ':class=banner-image')
+![Flowchart](beijingshi/bjs.png ':class=banner-image')
 # 东城区
 
 ## 西城区
