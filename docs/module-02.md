@@ -1,24 +1,161 @@
 ![Flowchart](images/4853380320_492f9dce63_b.jpg ':class=banner-image')
 
-# What does a holistic user experience design process look like?
+## 黄浦区
 
-## Summaries and Questions  
-[May 16th Class One-minute Summaries](https://sso.canvaslms.com/courses/1924881/assignments/14377743)
+## 徐汇区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Presented Slides  
-<div class="video-container-16by9"><iframe src="https://docs.google.com/presentation/d/e/2PACX-1vRnnRFelgw1ksq_p8Eryg3dnyLCRRLPf5fBgdwdv9p-tCIwcxqWvzDGrGbjxGHL7HqEJVpmV26ntk3a/embed?start=false&loop=false&delayms=3000" frameborder="0" width=780" height="585" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe></div>
+## 长宁区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## CPT-363 UX Design Process/Toolkit
-![UX Design Process/Toolkit](images/ux-toolkit-8-no-numbers.png)
+## 静安区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Downloads
-[Product Reaction Cards](https://sso.canvaslms.com/courses/1924881/files/folder/Downloads/Product%20Reaction%20Cards)  
+## 普陀区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Assignments
-[Course Reflection Log](https://sso.canvaslms.com/courses/1413912/assignments/9519528)  
+## 虹口区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Quick Quiz
-<iframe src="https://h5p.org/h5p/embed/214115" width="728" height="278" frameborder="0" allowfullscreen="allowfullscreen" allow="geolocation *; microphone *; camera *; midi *; encrypted-media *" title="User-Centered Design"></iframe><script src="https://h5p.org/sites/all/modules/h5p/library/js/h5p-resizer.js" charset="UTF-8"></script>
+## 杨浦区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Recommended Reading  
-<a class="embedly-card" data-card-controls="0" data-card-align="left" href="https://uxplanet.org/the-evolution-of-ux-process-methodology-47f52557178b">The Evolution of UX Process Methodology</a>
+## 浦东新区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
+## 闵行区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/bjs_cy_gm.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_gm1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_gm2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
+## 宝山区
+
+## 嘉定区
+
+## 金山区
+
+## 松江区
+
+## 奉贤区
+
+## 青浦区
+
+## 崇明区
