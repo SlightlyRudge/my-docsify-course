@@ -1,5 +1,5 @@
 * [服务流程](schedule.md)
 * [导航栏2](topics.md)
-* [导航栏3](resources.md)
+* [性工作者加入](resources.md)
 * [导航栏4](ux-techniques-guide.md)
 * [联系方式](contact.md)
