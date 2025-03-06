@@ -21,94 +21,127 @@
 </details>
 
 <details>
-  <summary>问题2?</summary>
+  <summary>收款与付款及退款帐户问题?</summary>
 
-Agile UX  
-_A variation of the Agile methodology, which supports a more collaborative approach to various user experience design methods._
+都有什么收付款方式?
 
-*   答题2
+*  USDT(泰达币)  推荐 
+*  银行卡
+*  支付宝
+*  微信
 
-</details>
-
-<details>
-  <summary>问题3?</summary>
-
-Content Strategy  
-_Planning the creation, publication, and governance of useful, usable, and desirable content._
-
-*   答题3
-
-</details>
-
-<details>
-  <summary>问题4?</summary>
-
-Affinity Diagrams  
-_A tool to visually organize ideas and information_
-
-*   答题4
+有什么区别吗?
+*  USDT(泰达币)  推荐
+*  USDT 优点：1.安全，流水不会被监控。2.可做去中心化处理。3.可操作洗白资金。
+*  USDT 缺点：每次交易固定扣除2USDT手续费。
+*  银行卡/支付宝/微信/收付款方式
+*  银行卡/支付宝/微信 优点：方便，简单。
+*  银行卡/支付宝/微信 缺点：1.不安全，流水会被监控。2.不能去中心化。3.不能操作洗资金。4.工作者/CJ客户每次收付款都会有8%洗白资金的费用。
 
 
 </details>
 
 <details>
-  <summary>问题5?</summary>
+  <summary>各种退费问题?</summary>
 
-Brainstorming  
-_Brainstorming is a common group ideation technique._
+1.双方约好了，临时一方有事不能进行交易退款？
 
-*  答题5
-
-</details>
-
-<details>
-  <summary>问题6?</summary>
-
-Accessibility  
-_Accessibility is the practice of removing barriers that prevent interaction or access to websites by people with disabilities._  
-
-*   答题6
-
+*  老师原因导致不能交易。CJ客户支付的费用，我方全额退回。
+*  老师不让，全额退款。
+*  老师催客，补偿50%费用(须有真实录像或录音)可以证明。
+*  老师态度不好，补偿50%费用(须有真实录像或录音)可以证明。
+*  CJ客户原因导致不能交易。退费方式如下：
+*  1.临时有事，今天去不了了，可以改明天时间。如坚持要退款，退款50%.
+*  2.见面人照差别太大，经我方核实。人照的确存在不一，全额退款。
+*  3.CJ客户因各种原因导致迟到未按约定时间到达，请跟老师协商。我方认定规则是：老师套餐如60分钟。你晚到60分钟，我方判定正常打款给老师。尽量与老师协商。尽量提前到达。
 
 </details>
 
 <details>
-  <summary>问题7?</summary>
+  <summary>我所在地方没有，老师可以来吗?</summary>
 
-Color  
-_Aspects of an object described in terms of hue, lightness, and saturation._
+1.选择您最近的城市，选择那位老师，您在老师的服务费上能加多少钱。发送邮箱给我们。如果加的钱太少很不合理，我方不予回复。
+2.因为我们合作的老师不是外围，可能不喜欢去远一点的地方。如果您真喜欢某位老师，如果您方便可以过去老师所在地，价格也会合适。如果您不方便去老师所在地，老板您尽量加钱多点，老师也会同意。
 
-*   答题7 
 
-</details>
-
-<details>
-  <summary>问题8?</summary>
-
-Content Inventories  
-_Identifying and classifying the content in an existing product or system._
-
-*   答题8
 
 </details>
 
 <details>
-  <summary>问题9?</summary>
+  <summary>USDT(泰达币)是什么5?</summary>
 
-Cognitive Walkthrough  
-_A step-by-step evaluation of a system, from the viewpoint of a specific type of user._
+USDT(泰达币)
 
-*   答题9
+*  USDT(泰达币) 简称“U”，稳定币的一种。不是很懂得人都归类说是虚拟币。
+*  USDT(泰达币) 是稳定币，它对标得是美元。世界上有多少USDT(泰达币)，USDT(泰达币)官方就在银行有多少美元。它得价值浮动是跟美元一样得。
+
+USDT(泰达币) 我要怎么使用呢？
+*  USDT(泰达币) 买/卖币，都是在交易所完成。
+*  世界排名第一得虚拟货币交易所是“币安(Binance)”。
+*  世界排名第四得虚拟货币交易所是“OKX(欧易)”。
+*  币安(Binance) 中文官网：https://www.binance.com/zh-CN
+*  OKX(欧易) 中文官网：官网中文：https://www.okx.com/zh-hans
+*  嫌交易所麻烦可以选择一些第三方聊天软件也可以充值，就是汇率偏高。如 “ Potato ”，也叫“土豆”。可以自行浏览器搜索下载。
 
 </details>
 
 <details>
-  <summary>问题10?</summary>
+  <summary>我也想赚钱，我可以加入你们吗?</summary>
 
-Usability Test Reports  
-_How to write more effective usability test reports._
+如果您想加入我们，跟我们一样在服务费中赚钱一些利润，我们很欢迎。
 
-*   答题10
+*   1.不管你用任何方式推广对接客户。佣金100元/单起，有量价格可谈。
+*   2.你可以在佣金得基础上增加价格，这样佣金+多出得价格会结算给你。
+
+
+</details>
+
+<details>
+  <summary>老师结算问题?</summary>
+
+美丽得老师们，请尽量选择USDT结算。避免经常封控，不好转账。
+
+</details>
+
+<details>
+  <summary>你们得网站地址会变吗?</summary>
+
+会的，多种原因，而且我们网站有很多。我们唯一标识是邮箱。我们得邮箱是不会改变的且安全的。
+如果因某些原因，网站地址打不开。请您不要着急，使用以下方面：
+
+* 1.使用虚拟网络如VPN或其他加速器，登录网站即可打开。
+* 2.邮箱发送：某地区打不开网站，说明前因后果。我方会回复你新的或者其他网址。
+
+
+</details>
+
+<details>
+  <summary>小姐姐们安全吗?</summary>
+
+您是指身体健康吗？
+
+* 我方要求所有老师每个月体检一次并给我方上传报告。
+
+您是指工作室安全吗？
+
+* 在我方平台展示的老师及团队工作室都有押金，凤楼比会所等场所安全，20+年运营工作室出现问题极低概率，出现过几次好像都是因为CJ醉酒导致。
+
+</details>
+
+<details>
+  <summary>你们怎么那么多老师?怎么做到全国各地都有合作的老师？</summary>
+
+这个问题很外行了，可能在您的认知意外了，古话说：隔行如隔山。
+
+*  我们平台老师真的不多，在某些社交软件圈子里(这里不方便说)，大陆90%的地方都能找到老师，可以说县城以上城市都有老师。小项-中项-低端-中端-高端-外围-网红-小明星。都可以找到，
+*  我们如果不考虑长久与管控方面，我们可以做到全国90%县城服务。当然了，我们敢这么说，其实别人家平台也可以做到，就是因为圈子里都是公开透明的。
+*  为什么不做那么全面，肯定是利润与时间成本与人工成本不成正比。做了县城反而亏钱。
+
+还有一些人发邮箱问我们是否可以帮忙找老师，也想做这行业，我们简单说明下：
+* 1.您是线上还是线下，考虑下风险问题。
+* 2.您的款项怎么收发或佣金怎么交易，可不可以避免封控及风险。
+* 3.考虑清楚风险问题，是否有能力做这个行业。
+* 4.我们可以告诉你一些找老师的渠道与方法（这是有偿的）。
 
 </details>
 
