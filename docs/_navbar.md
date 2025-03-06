@@ -2,4 +2,4 @@
 * [导航栏2](topics.md)
 * [导航栏3](resources.md)
 * [导航栏4](ux-techniques-guide.md)
-* [导航栏5](contact.md)
+* [联系方式](contact.md)
