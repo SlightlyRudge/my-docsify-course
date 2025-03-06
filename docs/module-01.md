@@ -3,7 +3,7 @@
 # 东城区
 
 ## 西城区
-### 雨一桐 [<span style="color:blue;">北京</span>]
+### 雨一桐
 - ❤️雨一桐
 - ❤️25/170/108斤/B+
 - ❤️来自重庆
@@ -18,7 +18,7 @@
 <img src="images/bjs_xc_yyt1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_xc_yyt2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## 朝阳区
+## <span style="color:red;">朝阳区</span>
 ### 伊莎
 - ❤️伊莎 ：服务系鼻祖
 - ❤️164/48kg/28岁/b+
