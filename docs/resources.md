@@ -1,61 +1,44 @@
 # 性工作者加入
 
-## Reflective Writing  
-*   [A short guide to reflective writing](https://intranet.birmingham.ac.uk/as/libraryservices/library/skills/asc/documents/public/Short-Guide-Reflective-Writing.pdf)
-*   [How Reflecting On Your Work Can Make You A Better Designer](https://medium.com/center-centre-cohort-01/how-reflecting-on-your-work-can-make-you-a-better-designer-5ce2f3886f51)
-*   [Online Guide to Reflective Writing](https://nile.northampton.ac.uk/bbcswebdav/pid-1244383-dt-content-rid-3278540_1/courses/Centre-for-Achievement-and-Performance/Skills/Reflective%20Writing/Reflective%20Writing%20-%20Feb%202017.pdf)
-*   [Reflective Toolbox](http://writeonline.ca/media/documents/ReflectiveToolbox.pdf)
-*   [Reflective writing: a basic introduction](http://www.port.ac.uk/media/contacts-and-departments/student-support-services/ask/downloads/Reflective-writing---a-basic-introduction.pdf)
+## 诚邀从事性工作者加入我们 
+*  欢迎个人从业者及团队工作室加入我们合作。
+*  我们经营互联网凤楼平台20+年，有稳定的客户群体。
+*  截止至2023年4月统计我们为客户服务次数已过50万次。
+*  旗下站群流量每日10万+
+*  我方长期在各大网站投放广告，发展新客户群体。
 
-## UX Platform Guideline Collections  
-*   [Android User Interface Design Guidelines](https://developer.android.com/guide/practices/ui_guidelines/index.html)
-*   [Google Material Design Guidelines](https://material.google.com/)
-*   [iOS Human Interface Design Guidelines (iPhone and iPad)](https://developer.apple.com/ios/human-interface-guidelines/)
-*   [KDE Human Interface Design Guidelines](https://community.kde.org/KDE_Visual_Design_Group/HIG)
-*   [OS X Human Interface Design Guidelines](https://developer.apple.com/library/mac/documentation/UserExperience/Conceptual/OSXHIGuidelines/index.html#//apple_ref/doc/uid/TP40002720-TPXREF101)
-*   [Windows App Design Guidelines (Touch)](https://msdn.microsoft.com/en-us/library/dn742468.aspx)
+## 加入流程：
+*  个人从业者加入我们，押金5000元。
+*  团队工作室加入我们，押金10000元。
+*  每月进行一次体检并上传我方。
+*  如退出提前三天申请，我方下架您的信息，三天内审核期(主要审核申请前1-3天是否派遣过客户，如派遣我方会联系客户是否有什么问题)，没问题，等待三天审核期到退回押金。(推荐收款方式：USDT)。银行卡/微信/支付宝收款，收取8%手续费。
+*  押金作用：给与CJ客户保障。
+*  认证方式：视频认证。
+*  提供资料：本人身份证+手机号+银行卡。资料必须为本人。（如：损害CJ客户权益，我方扣除押金，押金全额赔付给CJ客户。我方会通过您提供的资料，全行业曝光并使用一些手段会让执法者找你）。
 
-## UX Templates  
-*   [Contextual Interview Form](http://userfocus.co.uk/pdf/cisheet.pdf)  
-*   [One Page User Research Plan](https://www.smashingmagazine.com/2012/01/ux-research-plan-stakeholders-love/)  
-*   [Templates & Downloadable Documents | Usability.gov](http://www.usability.gov/how-to-and-tools/resources/templates.html)
-*   [cxpartners | Resources](http://www.cxpartners.co.uk/ux-resources/)
-*   [The PM Toolkit](http://thepmtoolkit.com/)
-*   [UX Project Checklist](http://uxchecklist.github.io/)
+## 佣金结算：
+*   支持：USDT(推荐)/银行卡/微信/支付宝。
+*   我方收取10%服务费。如：收到客户1000元费用，我方打款到您的收款900元，打款中如需转账费用我方承担。
+*   佣金于每次服务完，客户评价后结算。如客户CJ完一直未评价，当日12：00前结算。
 
-## UX Design Checklists  
-*   [A Checklist for Designing Mobile Input Fields](http://www.nngroup.com/articles/mobile-input-checklist/)  
-*   [Mobile UX Checklist (PDF, by Mobify)](http://downloads.mobify.com.s3.amazonaws.com/ebooks/25-Ways-to-Make-Your-Mobile-E-Commerce-Revenue-Skyrocket-Mobify.pdf)  
-*   [One-Page Touch Interaction Design Checklist (PDF)](https://canvas.sfu.ca/courses/38847/files/folder/Handouts/Touch%20Interaction%20Checklist)
-*   [Usability checklist (Userium)](https://userium.com/)
-*   [UX Project Checklist](http://uxchecklist.github.io/)
 
-## UX Technique Collections  
-*   [Methods | Usability.gov](http://www.usability.gov/how-to-and-tools/methods/)
-*   [Methods | Usability Body of Knowledge](http://www.usabilitybok.org/methods)
-*   [Usability Planner](http://usabilityplanner.org/#home)
-*   [UX Techniques (by UX Mastery)](http://uxmastery.com/resources/techniques)
+## 奖励机制：
+*   海天盛筵每月服务次数奖励机制：
+*   服务次数第一名：奖励金额：10000元。
+*   服务次数第二名：奖励金额：6000元。
+*   服务次数第三名：奖励金额：3000元。
+*   海天盛宴每月好评榜奖励机制：
+*   服务次数第一名：奖励金额：10000元。
+*   服务次数第二名：奖励金额：6000元。
+*   服务次数第三名：奖励金额：3000元。
 
-## UX Article Collections  
-*   [The UX Bookmark](http://www.theuxbookmark.com/)
-*   [User Experience Magazine (UXPA)](http://uxpamagazine.org/)
-*   [UI/UX Articles (Medium)](https://medium.com/ui-ux-articles)
+## 加入你们的优势：
+*   我方平台网站长期投放广告发展新客户。
+*   我方平台网站运营20+年，有稳定的客户群体
+*   我方根据您的自身情况及地理位置，推荐修改及地理位置 。
+*   我方有专业的资金运转方式，保障资金到手安全。
 
-## UX eBooks  
-*   [50 UX Best Practices by Above the Fold (email address required)](http://www.userexperiencedesigns.com/)
-*   [Bright Ideas for User Experience Designers](http://www.userfocus.co.uk/ebooks/uxdesign.html)
-*   [The Fable of the User-Centered Designer](http://www.userfocus.co.uk/fable/)
 
-## UX Design MOOCs & Courses
-*   [Human-Computer Interaction | Coursera](https://www.coursera.org/course/hciucsd)
-*   [The Design of Everyday Things | Udacity](https://www.udacity.com/course/design101)
-*   [Rapid Wireframing: Finding the Right Product Design](https://www.skillshare.com/classes/design/Rapid-Wireframing-Finding-the-Right-Product-Design/1947996659)
-
-## UX Podcast Collections  
-*   [Design Critique: Products for People](http://designcritique.net/)
-*   [Podcasts - UIE Brain Sparks](http://www.uie.com/brainsparks/topics/podcasts/)
-*   [Boagworld Podcast](https://boagworld.com/show/)
-*   [User Experience Podcast](http://www.infodesign.com.au/uxpod)
 
 ## UX Video Collections  
 *   [Google Developers Channel](https://www.youtube.com/user/GoogleDevelopers/search?query=user+experience+usability)  
