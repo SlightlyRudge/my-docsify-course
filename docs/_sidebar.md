@@ -3,7 +3,16 @@
 - [<span style="color:green;">上海</span>](module-02)
 - [<span style="color:purple;">天津</span>](module-03)
 - [<span style="color:orange;">重庆</span>](module-04)
-- [<span style="color:orange;">河北</span>](河北)
+- [<span style="color:pink;">河北省</span>](河北)
+- [<span style="color:yellow;">山西省</span>](河北)
+- [<span style="color:brown;">辽宁省</span>](河北)
+- [<span style="color:gray;">吉林省</span>](河北)
+- [<span style="color:black;">黑龙江省</span>](河北)
+- [<span style="color:cyan;">江苏省</span>](河北)
+
+
+
+
 
 - **LMS 链接**
   - [![日历](https://icongr.am/fontawesome/calendar.svg?size=16&color=808080)Calendar](https://canvas.sfu.ca/courses/44038/calendar)
