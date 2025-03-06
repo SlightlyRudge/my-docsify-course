@@ -1,53 +1,14 @@
-# UX Techniques Guide
+# 问题解答
 
 <div class="accordion">
 
 <details>
-  <summary>What is Usability and User Experience Design?</summary>
+  <summary>问题1111?</summary>
 
   Design Thinking  
   _An iterative methodology for producing practical and creative resolutions to problems or issues._
 
-  *   [A Brief History of Design Thinking: How Design Thinking Came to 'Be' ](https://ithinkidesign.wordpress.com/2012/06/08/a-brief-history-of-design-thinking-how-design-thinking-came-to-be/)
-  *   [Design Thinking 101](https://www.nngroup.com/articles/design-thinking/)
-  *   [Demystifying Design Thinking: Interview with Tamara Christensen](http://thinkjarcollective.com/interviews/demystifying-design-thinking-interview-tamara-christensen/)
-  *   [Design Thinking... What is That?](http://www.fastcompany.com/919258/design-thinking-what)  
-  *   [Design Thinking | Employing Design Principles | Defining Ease of Use](http://www.uxmatters.com/mt/archives/2011/01/design-thinking-employing-design-principles-defining-ease-of-use.php)
-  *   [Design Thinking Comes of Age](https://hbr.org/2015/09/design-thinking-comes-of-age)  
-  *   [How to apply a design thinking, HCD, UX or any creative process from scratch](https://medium.com/digital-experience-design/how-to-apply-a-design-thinking-hcd-ux-or-any-creative-process-from-scratch-b8786efbf812#.y2tfvlsq0)
-  *   [The Design of business: Why Design Thinking is the Next Competitive Advantage](http://net.tutsplus.com/articles/general/three-steps-to-fostering-a-user-centered-design-culture/)
-
-Problem Statement  
-_A brief description of the issue that needs to be solved by a project or group._
-
-*   [Bridging User Research into Design](http://www.uxmatters.com/mt/archives/2011/10/bridging-user-research-into-design.php)  
-*   [How to come up with great UX ideas](http://www.uxforthemasses.com/great-ux-ideas/)  
-*   [Lean Product Design: Write a problem statement](https://pages.18f.gov/lean-product-design/2-problem-statement/)  
-*   [What’s Your Problem? Putting Purpose Back into Your Projects](https://whitneyhess.com/blog/2012/10/18/whats-your-problem-putting-purpose-back-into-your-projects/)  
-
-Usability  
-_The ease of use and learnability of physical and digital objects._
-
-*   [A Business Case for Usability](http://www.userfocus.co.uk/articles/usabilitybenefits.html)  
-*   [Fact vs. Fiction: What Usability is Not](http://www.uxbooth.com/articles/fact-vs-fiction-what-usability-is-not/)  
-*   [Usability 101: Introduction to Usability](http://www.nngroup.com/articles/usability-101-introduction-to-usability/)  
-
-User Experience Design  
-_The holistic experience of a digital or technological product or service._
-
-*   [CUBI: A User Experience Model for Project Success | UX Magazine](http://uxmag.com/articles/cubi-a-user-experience-model-for-project-success)  
-*   [Four Myths About UX and How to Bust Them](http://uxmag.com/articles/four-myths-about-ux-and-how-to-bust-them)  
-*   [Getting Started in User Experience](http://www.uxmatters.com/mt/archives/2015/10/getting-started-in-user-experience.php)  
-*   [The Experience Makes the Product, Not the Features](http://uxmag.com/articles/the-experience-makes-the-product-not-the-features)
-*   [User experience design is not what you think](https://boagworld.com/usability/user-experience-design-is-not-what-you-think/)
-*   [What is UX Design? 15 User Experience Experts Weigh In](https://www.usertesting.com/blog/2015/09/16/what-is-ux-design-15-user-experience-experts-weigh-in/)
-
-User Interface Design  
-_The design of the communication between the user and a system._
-
-*   [Universal Model of a User Interface (PDF)](http://www.openeye-training.com/downloads/UIModel.pdf)  
-*   [User Interface Design, Getting the Basics Right](http://www.uxbooth.com/articles/user-interface-design-getting-the-basics-right/)  
-*   [What UI really is (and how UX confuses matters)](http://feltpresence.com/articles/19-what-ui-really-is-and-how-ux-confuses-matters)  
+  *  答题
 
 </details>
 
