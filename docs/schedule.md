@@ -1,31 +1,43 @@
-# Schedule
+# CJ流程(服务流程)
 
-## :fas fa-calendar fa-pull-left: [Week 1 (May 9 - 15)](module-01)
-**What is usability and user experience design?**  
-:fas fa-desktop fa-fw: [Introduction to UX Design](https://docs.google.com/presentation/d/e/2PACX-1vRnnRFelgw1ksq_p8Eryg3dnyLCRRLPf5fBgdwdv9p-tCIwcxqWvzDGrGbjxGHL7HqEJVpmV26ntk3a/pub?start=false&loop=false&delayms=3000)   
-:fas fa-book fa-fw: [Usability 101: Introduction to Usability](https://www.nngroup.com/articles/usability-101-introduction-to-usability/)  
+## 第一步：
+挑选好您所在地区的老师，准备好USDT或微信及支付宝的服务费用。
 
-## :fas fa-calendar fa-pull-left: [Week 2 (May 16 - 22)](module-02)
-**What does a holistic user experience design process look like?**  
-:fas fa-keyboard fa-fw: [Course Reflection Log](https://sso.canvaslms.com/courses/1924881/assignments/14377752) <span class='badge'> Fri Aug 3rd 11:59pm PDT</span>  
-:fas fa-desktop fa-fw: [The Process of UX Design](https://docs.google.com/presentation/d/e/2PACX-1vRnnRFelgw1ksq_p8Eryg3dnyLCRRLPf5fBgdwdv9p-tCIwcxqWvzDGrGbjxGHL7HqEJVpmV26ntk3a/pub?start=false&loop=false&delayms=3000)   
-:fas fa-book fa-fw: [The Evolution of UX Process Methodology](https://uxplanet.org/the-evolution-of-ux-process-methodology-47f52557178b)  
+## 第二步：
+地区：某某省---某某市---某某区
+老师：那位老师
+套餐：一次/两次/包时/包夜
+时间：如今日-明日的上午及下午或晚上几点。
+CJ地点：老师工作室/外出酒店(自住房)
+支付方式：USDT/银行卡/支付宝/微信
 
-## :fas fa-calendar fa-pull-left: [Week 3 (May 23 - 29)](module-03)
-**How to make more strategic design decisions?**  
-:fas fa-keyboard fa-fw: [Journey Map](https://sso.canvaslms.com/courses/1924881/assignments/14377756) <span class='badge'> Tue Jun 12th 11:59pm PDT</span>  
-:fas fa-folder fa-fw: [Informed Consent Materials](https://sso.canvaslms.com/courses/1924881/files/folder/Downloads/Informed%20Consent)  
-:fas fa-desktop fa-fw: [Strategic UX Design](https://docs.google.com/presentation/d/e/2PACX-1vRnnRFelgw1ksq_p8Eryg3dnyLCRRLPf5fBgdwdv9p-tCIwcxqWvzDGrGbjxGHL7HqEJVpmV26ntk3a/pub?start=false&loop=false&delayms=3000)   
-:fas fa-book fa-fw: [What is a User Journey Map?](https://www.aytech.ca/blog/user-journey-map/)  
+## 第三步：
+填写好第二步内容，发送邮箱：          。我方联系老师确定是否上课及时间安排。等待邮箱回复。
 
-## :fas fa-calendar fa-pull-left: [Week 4 (May 30 - Jun 5)](module-04)
-**How to explore the problem space?**  
-:fas fa-desktop fa-fw: [Prototyping](https://docs.google.com/presentation/d/e/2PACX-1vRnnRFelgw1ksq_p8Eryg3dnyLCRRLPf5fBgdwdv9p-tCIwcxqWvzDGrGbjxGHL7HqEJVpmV26ntk3a/pub?start=false&loop=false&delayms=3000)   
-:fas fa-book fa-fw: [The Skeptic’s Guide To Low-Fidelity Prototyping](https://www.smashingmagazine.com/2014/10/the-skeptics-guide-to-low-fidelity-prototyping/)  
-:fas fa-users fa-fw: In-class office hours (tentative)  
+## 第四步：
+1.邮箱回复，老师可约。邮箱附带付款二维码，您直接扫码支付老师全额费用即可。
+2.邮箱回复，老师休息或忙。您可以修改下约定时间，或者挑选其他老师。
+3.邮箱有时候回复可能会慢，请您等待即可。
 
-## :fas fa-calendar fa-pull-left: [Week 5 (Jun 6 - 12)](module-05)
-**How to plan, conduct, and summarize usability tests?**  
-:fas fa-desktop fa-fw: [Usability Testing](https://docs.google.com/presentation/d/e/2PACX-1vRnnRFelgw1ksq_p8Eryg3dnyLCRRLPf5fBgdwdv9p-tCIwcxqWvzDGrGbjxGHL7HqEJVpmV26ntk3a/pub?start=false&loop=false&delayms=3000)   
-:fas fa-book fa-fw: [The Art of Guerrilla Usability Testing](http://www.uxbooth.com/articles/the-art-of-guerrilla-usability-testing/)  
-:fas fa-users fa-fw: In-class office hours (tentative)
+## 第五步：
+支付完费用，支付成功界面截图，及您的联系方式(方式您不方便，可以不发，我方可以发送老师联系方式给您)并邮箱发送。
+如您考虑联系方式隐私：您可以使用点对点双向删除等软件，邮箱发送即可。
+
+## 第六步：
+我方确认收款信息，无误。
+发送您老师的联系方式：老师电话号码/微信号/QQ号。
+
+## 第七步：
+CJ完，老板可以邮件写评价，下次CJ可-100元。评价不限次数。每次CJ完，评价老师，下次CJ都可以-100元。
+
+
+## 关于各种退费，及其他问题
+
+
+
+
+
+
+
+
+
