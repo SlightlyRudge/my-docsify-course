@@ -1,18 +1,163 @@
 ![Bullseye](images/6384294717_5047a35d48_b.jpg ':class=banner-image')
 
-# How to make more strategic design decisions?
+![Flowchart](images/4853380320_492f9dce63_b.jpg ':class=banner-image')
 
-## Summaries and Questions  
-[May 23rd Class One-minute Summaries](https://sso.canvaslms.com/courses/1924881/assignments/14377744)
+## 和平区
 
-## Presented Slides  
-<div class="video-container-16by9"><iframe src="https://docs.google.com/presentation/d/e/2PACX-1vRnnRFelgw1ksq_p8Eryg3dnyLCRRLPf5fBgdwdv9p-tCIwcxqWvzDGrGbjxGHL7HqEJVpmV26ntk3a/embed?start=false&loop=false&delayms=3000" frameborder="0" width=780" height="585" allowfullscreen="true" mozallowfullscreen="true" webkitallowfullscreen="true"></iframe></div>
+## 河东区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Supplemental Materials  
-<div class="video-container-4by3"><iframe width="780" height="585" src="https://www.youtube.com/embed/a40QYgO-_aM" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></div>
+## 河西区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Assignments
-[Journey Map](https://sso.canvaslms.com/courses/1924881/assignments/14377756)  
+## 南开区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
-## Required Reading  
-<a class="embedly-card" data-card-controls="0" data-card-align="left" href="https://www.aytech.ca/blog/user-journey-map/">What is a User Journey Map?</a>
+## 河北区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
+## 红桥区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
+## 东丽区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
+## 西青区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
+## 津南区
+### 果敏
+- ❤️果敏
+- ❤️20/163/48kg/c
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦地点：通州
+<img src="images/bjs_cy_gm.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_gm1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cy_gm2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
+## 北辰区
+
+## 武清区
+
+## 宝坻区
+
+## 滨海新区
+
+## 宁河区
+
+## 静海区
+
+## 蓟州区
