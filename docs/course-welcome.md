@@ -1,22 +1,22 @@
 ![Welcome sign](images/belinda-fewings-6wAGwpsXHE0-unsplash.jpg ':class=banner-image')
 
-# 海天盛筵-全国中高端凤楼
+# <span style="color:purple;">海天盛筵-全国中高端凤楼</span>
 
- To help orientate yourself to the course, explore the [course syllabus](https://canvas.sfu.ca/courses/44038/assignments/syllabus). You may also want to view a brief tour of [Blackboard Collaborate Ultra](https://www.youtube.com/watch?v=1W4sGpVmJaY).
+一楼一凤，又简称“凤楼”，是香港性工作者的一种提供性服务的方式，因为只有一名妓女在一个住宅单位内提供服务而得名，也是香港性产业的主要组成部分。妓女在香港常被称为“凤姐”，此名称自1990年代兴起。
 
-Is this your first online course? If so, you might find these articles of help:
+### 行业历史:
+* 1970年-1980年代成立“鱼蛋档”。
+* 1990年因风险问题，“鱼蛋档”没落，新兴名称“一楼一凤”取而代之。
+* 2000年代香港缓交网站纷纷出现。是香港首个由性工作者自己成立的组织“姐姐仔会”希望帮助同行间守望相助的团体，在2006年11月由紫藤协助下成立。如2000年成立，英国总工会旗下的“IUSW”。但根据香港法例，操控性工作者是非法行为，性工作者不能有合法雇主，因此姐姐仔会只取得社团注册，而并非法律上的正式工会。这些组织已经是过去式了，现在早已没有了。
 
-* [8 Strategies for Getting the Most Out of an Online Class](https://www.northeastern.edu/graduate/blog/tips-for-taking-online-classes/)
-* [What Makes a Successful Online Learner?](https://careerwise.minnstate.edu/education/successonline.html)
-* [Student toolkit to help tackle remote learning](https://socialmediaforlearning.com/2020/03/22/guest-post-a-student-toolkit-to-help-you-tackle-remote-learning-written-by-students-for-students/)
-## <span style="color:red;">红色标题</span>
-## <span style="color:blue;">蓝色标题</span>
-## <span style="color:green;">绿色标题</span>
-## <span style="color:purple;">紫色标题</span>
-## <span style="color:orange;">橙色标题</span>
-## <span style="color:pink;">粉色标题</span>
-## <span style="color:yellow;">黄色标题</span>
-## <span style="color:brown;">棕色标题</span>
-## <span style="color:gray;">灰色标题</span>
-## <span style="color:black;">黑色标题</span>
-## <span style="color:cyan;">青色标题</span>
+### 我们的历史:
+* “海天盛筵”创建于2002年6月6号，前身原名：香槟大厦。解释：“香槟大厦”当时是香港最富盛名的凤楼，当时很多中介合作赚取佣金，我们前身是网站推广，客人联系后对接，我们赚钱中间佣金。
+* 2002年创立至2017年3月，我们一直做香槟大厦的中介服务。
+* 因2017年3月的一次大规模反黑行动后，色情服务近乎绝迹。通过香槟大厦里的大陆姑娘，我们开始慢慢发展大陆业务至今日。
+* 改名事件：发展大陆业务，名字还叫“香槟大厦”就没有知名度了。我们为了蹭流量找到了2013年4月中国海南三亚举办的名为“海天盛筵”被揭发 ，流量很大。2017年8月16号我们正式更名为“海天盛筵”沿用至今。
+
+### 怎么分辨你们真伪:
+
+* 因各种原因，我们的网站地址入口经常会更改或者某些原因被地区限制，解决问题如下：。
+* 第一：分辨真伪：我们的网站地址入口或网站样式更改，都是叫“海天盛筵”怎么辨别是不是我们。这个很好解决。我们不会换联系邮箱：   只要您记住我们的邮箱地址。您忘记了网站地址入口，可以发送邮件获取。
+* 第二：网站突然打不开？1.可能是因为服务器重启，您可以等待几个小时或第二天打开。2.可能是地区限制了，您可以使用VPN，或者其他可以改变虚拟网络及IP的办法，再次打开就可以了。3.您可以联系我们“邮箱”获取新的网站地址入口。
