@@ -1,8 +1,9 @@
-- [关于我们](course-welcome)
-- [北京](module-01)
-- [上海](module-02)
-- [广州](module-03)
-- [深圳](module-04)
+- [<span style="color:red;">关于我们</span>](course-welcome)
+- [<span style="color:blue;">北京</span>](module-01)
+- [<span style="color:green;">上海</span>](module-02)
+- [<span style="color:purple;">广州</span>](module-03)
+- [<span style="color:orange;">深圳</span>](module-04)
+
 - **LMS 链接**
   - [![日历](https://icongr.am/fontawesome/calendar.svg?size=16&color=808080)Calendar](https://canvas.sfu.ca/courses/44038/calendar)
   - [![作业](https://icongr.am/fontawesome/pencil.svg?size=16&color=808080)Assignments](https://canvas.sfu.ca/courses/44038/assignments )
