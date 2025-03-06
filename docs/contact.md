@@ -1,12 +1,11 @@
 # 联系方式
 
-## Course Instructor  
-Some Name  
+邮箱：
 somename@somewhere.edu  
 
-Online office hours:  
-Mondays 12:00-1:30pm  
+办公时间:  
+周一至周日10：00-12：00
 Fridays 12:00-1:00pm  
 
-Suggestion, concern or complaint?  
-Send me your [anonymous course feedback](#)!
+有建议，疑惑或投诉?  
+请您给我发邮件反馈您的问题。
