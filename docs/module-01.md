@@ -1,6 +1,88 @@
 ![UX - User Experience](images/bjs.png ':class=banner-image')
 
 # <span style="color:red;">东城区</span>
+### 林夏
+- ❤️92斤/166/天然E杯水滴形
+- ❤️皮肤光滑细腻，腰细屁股大，妩媚骚型，服务控，热情体贴，配合度高
+- ❤️皮肤滑嫩白，热情主动，温柔系，女友系。
+- 💰套餐A：800-40分钟：跪舔/指滑调情/制服
+- 💰套餐B：p1100/60分钟，pp1700/90分钟：助浴/水中萧/🐻推/指滑/按摩/私语/星球大战/漫游/刮痧/高山流水/饶舌毒龙/添蛋/玉女缠身/深喉/360度吹箫/🐍/高跟鞋/丝袜/口爆
+- 💰特色服务p1400/pp1900/日式水墨
+- 💰包时套餐：2100/120分钟，全套服务+日式水墨+情趣
+- 💰包夜套餐：2600/23-9.30/3次/全套服务+日式水墨+情趣
+- ⚠️禁：嗑药，无T，酒驾，肛。
+- 🏦天坛
+<img src="images/bjs_dx_1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 洛洛
+- ❤️168/D/90/00年
+- ❤️兼职 山东人
+- ❤️可咸可甜，腰细，蜜桃臀，不催不事，fw好，配合度高，性格温柔，皮肤细滑白嫩
+- 💰p2000
+- 💰pp3500
+- 💰夜6000
+- ⚠️禁：嗑药，三通，酒驾，毒龙，小时工。
+- 🏦朝阳门
+<img src="images/bjs_dx_3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_4.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_5.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 美娜
+- ❤️163/45/B
+- ❤️兼职，身材苗条大长腿 ，外表御姐，性格温柔大方，善解人意，服务热情
+- 💰p1200/50分钟，pp2200/100分钟/服务：陪浴/指滑/制服/丝袜/高跟/舌吻 /69/可品/啪啪
+- 💰夜3000/11-8点/限三次
+- ⚠️禁：酒，药，无套，液体套。
+- 🏦和平里（外出两次以上+路费）
+<img src="images/bjs_dx_6.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_7.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_8.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 乔妹
+- ❤️99年/161/E
+- ❤️湖南人，纯天然大🐻36E，性格开朗，皮肤光滑，前凸后翘
+- 💰服务：69/陪浴/亲亲/🐻推/漫游/指滑/配合度高 
+- 💰p800/50分钟
+- 💰pp1600/120分钟
+- 💰✌2000/12-8/限3次
+- ⚠️禁：酒，药，无套，打桩机。
+- 🏦东直门
+<img src="images/bjs_dx_9.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_10.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_11.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 双双
+- ❤️96年/170/E
+- 🎁丝袜奴原味或者无味，口舌丝袜，丝袜蒙眼，丝袜堵肛，丝袜捆绑，丝袜窒息，丝袜各种颜色 。
+- 🎁狗奴：狗链，遛狗，钻裆，狗食，狗尾巴
+- 🎁羞辱：形态羞辱，语言羞辱，人体家具，做脸窒息，黄金圣水
+- 🎁暴虐40（轻度中度重度）鞭打，滴蜡，灌肠，SP，虐阳，穿戴阳具啪啪，穿刺
+- 💰A套餐：p2000/pp3800：项目：口/舌/69/按摩/高跟/丝袜
+- 💰B套餐：2500：项目：A套餐+潮喷/指滑/角色扮演/老师/姐姐/秘书/后妈/喜欢尺度大可以喷JJ或者身上
+- 💰C套餐：3500：项目：A套餐+B套餐+S调教/恋足/丝袜 /舔脚/踩踏/跪拜/口舌足尖虐肛/高跟踢打
+- ⚠️没有夜。
+- 🏦安定门
+<img src="images/bjs_dx_12.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_13.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_14.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 思思
+- ❤️06年/165/95/36真大D
+- ❤️学生兼职（可看证 可看学信网）刚下海，经验少，不崔，不事，无纹身，身材好。
+- 🎁服务：陪浴/wt口/69/舌吻/花指
+- 💰p1600/60分钟
+- ⚠️禁：打桩机，巨大，吃药，喝酒，du。
+- 🏦和平里
+<img src="images/bjs_dx_15.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_16.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 唐玄奘
+- ❤️23/168/腰1.8/94/36C
+- ❤️来自湖北 ，白虎 ，一线天，嫩-特小
+- 🎁性格开朗 酥酥粉嫩 服务火辣 鸳鸯戏水 水中萧 指滑 🐻推 臀腿 阴推 过水 漫游 刮痧 毒龙 吹箫 深喉 口爆 丝袜 丝足 制服诱惑 舌吻 69 
+- 💰p1200/60分钟
+- pp2000/120分钟
+- ✌3500
+- ⚠️禁：打桩机，巨大，吃药，喝酒，du。
+- 🏦和平里
+<img src="images/bjs_dx_15.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_16.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_16.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">西城区</span>
 ### 雨一桐
@@ -298,12 +380,189 @@
 <img src="images/bjs_cy_gm2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">大兴区</span>
+### 阿朵
+- ❤️23/163/98/E纯天然
+- ❤️成都
+- ❤️本人身材S型，童颜巨乳，蜜桃臀，三点粉，配合度高，不催，不机车
+- ❤️沪上顶级骚货，特sao，服务王。号称箫后，花样多，特会玩，本人和照片零差距。
+- 🎁正宗莞式服务一条龙如下：特色FW项目：3P，潮P，助浴，口爆，舌吻，吞精，乳胶，颜射，密封采蜜，海底捞月，顽猴偷桃，排山倒海，水漫金山，鸳鸯戏水，69互玩互舔，BB会夹会缩，吹箫，胸推，漫游，毒龙，丝袜，各种制服诱惑，各种道具SAO自慰潮P，边做边P，各种情景故事，剧本均可私人定制，乱伦故事，调情高手，口超级好，舌头特软，风骚主动，态度好，姿势随便摆，配合度高，玩法多，花式多。
+- 💰p1800/51分钟
+- 💰pp2500/82分钟（含轻度SM）
+- 💰pp3200/100分钟
+- 💰4000/138分钟（不限p）
+- 💰6000/4小时（不限P）
+- 💰包夜5200/11-8点半
+- ❤️开课时间：中午10点-晚12点
+- ⚠️禁：议价，醉酒。
+- 🏦大兴国际机场（周边城市提前一天预约+2000+路费）
+<img src="images/bjs_dx_ad.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_ad1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_ad2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 美羊羊
+- ❤️22岁/172/52/B
+- ❤️成都
+- ❤️成都女孩，四川传媒大学毕业
+- ❤️25年首次下海，会的不多但主打高质量陪伴，细节控，努力给每位哥哥体贴入微的女友感
+- 🎁热情迎接/陪浴/浴中萧/舌吻/69/激情爱爱，爱爱过程都会听话配合哦。
+- 💰p2000/50min
+- 💰pp3500/80min
+- 💰下午茶5000/3小时/限3次
+- 💰包夜6000/23-9蒂娜/限3次
+- 💰包夜5200/11-8点半
+- 💰pp以上距离近+300+往返车费。
+- ⚠️禁：无T，醉酒，嗑药。
+- 🏦大兴国际机场
+<img src="images/bjs_dx_myy.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_myy1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_myy2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 苗苗
+- ❤️06年/165/95
+- ❤️学生兼职，刚下海，经验少女友般的感觉，情绪价值给足，不催，不事，温柔可爱，无纹身，身材好
+- 🎁服务：陪浴/wt/口/69/舌吻。
+- 💰p1600
+- 💰pp3000
+- 💰✌5200
+- ⚠️禁：打桩机，巨大，吃药，喝酒，du。
+- 🏦魏善庄
+<img src="images/bjs_dx_mm.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_mm1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 木木酱
+- ❤️02年/172/50kg/B
+- 🎁可咸可甜，性格好，配合度高，不机车，皮肤白，水多紧致，会夹会吸，百变姿势，乖巧听话，多种情趣，不太过分的要求都会满足哥哥。
+- 💰p800/40分钟/陪浴/🐻推/臀推/花式指滑/无T口
+- 💰p900/60分钟/陪浴/🐻推/臀推/花式指滑/无T口/高跟丝袜/情趣/69/制服诱惑
+- 💰pp1600/90分钟/两次B套餐
+- ❤️开课时间：中午12点到晚10点
+- ⚠️禁：吃药，醉酒，无T，外出，桩机。
+- 🏦大兴国际机场
+<img src="images/bjs_dx_mmj.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_mmj1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_mmj2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 奶昔
+- ❤️00年/165/96/D
+- ❤️四川人，本人有性瘾爱好，也爱毛爷爷，基本隔一天不爱爱自己都会被窝里自慰，天生敏感体质，极容易高潮，这张胜利特性我自己没办法控制。体毛稀少近乎白虎，下面无毛干净粉粉。
+- 💰p1200/50分钟/内容：陪浴/浴中萧/调情/口爆（可以射在我嘴里）/油推/泰式按摩/风情指滑/胸推/猫嗅/滚水/全身舌漫/亲咪咪/丝袜诱惑/手推
+- 💰pp1500/80分钟/内容：课一服务的基本上外加：舌吻/阴推/臀推/花式毒龙（饶舌环绕式）/泰式抓龙筋/冰火两重天/跳跳糖/花式69/角色扮演/情趣道具
+- 💰pp1800/110分钟/内容：课一和课二的基本上外加：蒙眼捆绑20分钟（妹妹带着手铐，带着眼罩，可躺在床上/崛起屁股/跪在床上，听哥哥指挥，任由哥哥随意摆布扣穴调教）自慰表演20分钟（任选各种情趣震动棒小玩具），更深度的调情前戏，颜射，做脸（可深度的让我的小粉穴含在你嘴里品尝），可配合各种姿势，轻度SM。
+- 💰过夜3500/23-8点/包含课一课二课三所有服务
+- 💰包天7000/24小时，包含课1-3所有服务，任选时间段，可车震，户外不穿内内陪哥哥出门逛街看电影吃饭，可穿戴无线遥控跳蛋，穿戴式震动伸缩玩具出门，哥哥手里可以控制跳蛋震动频率哦，如不喜欢出门可以一整天呆在家里玩耍吃外卖。
+- ⚠️禁：肛，无T，酒后。
+- 🏦大兴国际机场（可二以上可外出+往返路费）
+<img src="images/bjs_dx_nx.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_nx1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_nx2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 甜心恋爱(工作室)
+- ❤️我们妹妹配合度高，可配合各种定制服务，姿势多，热情主动。
+- 💰p1200/60分钟
+- 💰pp2000/90分钟
+- 💰夜4500/22-8点/限3次
+- 💰双人PP4000/90分钟
+- 💰可接受任何定制服务多人套餐。
+- ⚠️禁：醉酒，嗑药。
+- 🏦大兴国际机场
+<img src="images/bjs_dx_txla.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_txla1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_txla2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_txla3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_txla4.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 小赫斯
+- ❤️03年新人/172/45/C
+- ❤️网红模特，甜美气质型
+- ❤️高学历，高素颜，周游列国，气质极佳，常年健身瑜伽，完美身材，气质在线。
+- 🎁会吸会夹，上下三点粉
+- 💰p3000
+- 💰pp6000
+- 💰✌12000
+- ⚠️禁：吃药，醉酒，桩机。
+- 🏦大兴国际机场
+<img src="images/bjs_dx_xhs.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_xhs1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_xh3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 晓然
+- ❤️170/49/D
+- ❤️三点粉，皮肤白，配合度高
+- 🎁69/🐍/制服/情趣
+- 💰p1600/60min
+- 💰pp3000/90min
+- 💰✌5000/11-8限3c
+- ⚠️禁：吃药，醉酒。
+- 🏦大兴国际机场，可外出+200路程30min内。外路费及服务费单算。
+<img src="images/bjs_dx_xr.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_xr1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_xr2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 优秀
+- ❤️169/49/c+
+- 🎁无T口/陪浴/各种姿势等等不过过分都可以
+- 💰p1800/50分钟
+- 💰pp3500/90分钟
+- 💰✌5600/限3次
+- ⚠️禁：吃药，醉酒。
+- 🏦大兴国际机场，外出+路费。
+<img src="images/bjs_dx_yx.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_yx1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_yx2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">房山区</span>
 
 ## <span style="color:red;">门头沟区</span>
 
 ## <span style="color:red;">昌平区</span>
+### 玫瑰
+- ❤️25岁/98斤//163/D
+- 🎁A套餐服务：陪浴/水中萧/按摩/指滑/胸推/漫游/刮痧/高山流水/添蛋/69/情趣/制服/丝袜/高跟
+- 💰P/1200/50分钟
+- 💰PP/1800/80分钟
+- 🎁B套餐服务：+日式水墨/陪浴/水中萧/按摩/指滑/漫游/刮痧/臀推/69/星球大战/窃窃私语/玉女缠身/高山流水/猴子偷桃/倒挂金钩/深喉/舌吻/毒龙/情趣/丝袜/制服/高跟/角色扮演
+- 💰p/1600/60分钟
+- 💰pp/2000/90分钟
+- 💰包时2小时/2500（不限p）
+- 💰包时3小时/3500（不限p）
+- 💰夜/3500（23：00至9：00）不限p
+- ⚠️禁：议价，无T，肛，醉酒，嗑药。
+- 🏦回龙观
+<img src="images/bjs_cp_mg.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cp_mg1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cp_mg2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cp_mg3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cp_mg4.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 梦凡
+- ❤️99年/165/98/36C
+- ❤️湖南女孩 皮肤细嫩白 女友感十足
+- ❤️三点粉 人照一致
+- 🎁陪浴/69/🐍/制服/配合度高/有口气不亲亲
+- 💰p/900/60分钟
+- 💰pp/1800/120分钟
+- 💰夜/3500（12：00至8：00）限三次
+- ⚠️禁：醉酒，嗑药 ，机桩。
+- 🏦流村（两次以上可上门+路费）
+<img src="images/bjs_cp_mf.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cp_mf1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cp_mf2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 淼淼
+- ❤️05年/165/95
+- ❤️学生兼职
+- ❤️身体白嫩 三点粉  腰细腿长
+- 🎁陪浴/wt/口/舌吻
+- 💰p/1400/60分钟
+- 💰pp/2500/120分钟
+- ⚠️禁：醉酒，吃药 ，打机桩，巨大。
+- 🏦南口
+<img src="images/bjs_cp_mm.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_cp_mm1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 苏瓷
+- ❤️168/95/05年/B+
+- ❤️广东人（温柔可爱）
+- ❤️南方人性格温和可爱，照片视频本人一样，原相机拍照视频。可素颜见。天然无整。
+- 可纯可密，初次下水，三点粉，水多，洞紧，各种姿势，极度配合，不过分的要求都能满足。
+- 🎁服务：陪浴/🐍/69/无T口/丝袜/制服/情趣/挑逗/密话私语
+- 🎁特殊：特殊可玩/跳蛋器具/基础上+500/次
+- 💰p/1400
+- 💰pp/2500
+- 💰✌4500/3c
+- ⚠️禁：wt，K药，暴力。
+- 🏦马池口
+<img src="images/photo_2025-02-24_20-21-52 (2).jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/photo_2025-02-24_20-21-52.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">平谷区</span>
 
