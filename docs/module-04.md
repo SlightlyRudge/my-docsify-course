@@ -1,6 +1,4 @@
-![Wireframe](images/6968244538_4c0f7c7e64_k.jpg ':class=banner-image')
-
-![Flowchart](images/4853380320_492f9dce63_b.jpg ':class=banner-image')
+![Wireframe](images/cqs.png ':class=banner-image')
 
 ## <span style="color:red;">万州区</span>
 ### 果敏
