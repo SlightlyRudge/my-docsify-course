@@ -1,4 +1,4 @@
-![Flowchart](images/4853380320_492f9dce63_b.jpg ':class=banner-image')
+![Flowchart](images/shs.png shs':class=banner-image')
 
 ## <span style="color:red;">黄浦区</span>
 
