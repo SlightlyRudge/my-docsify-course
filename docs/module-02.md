@@ -1,5 +1,4 @@
-![Flowchart](images/shs.png shs':class=banner-image')
-
+![Bullseye](images/shs.png ':class=banner-image')
 ## <span style="color:red;">黄浦区</span>
 
 ## <span style="color:red;">徐汇区</span>
