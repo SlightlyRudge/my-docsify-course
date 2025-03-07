@@ -74,15 +74,25 @@
 ### 唐玄奘
 - ❤️23/168/腰1.8/94/36C
 - ❤️来自湖北 ，白虎 ，一线天，嫩-特小
+- ❤️附带轻度SM，超高颜值
 - 🎁性格开朗 酥酥粉嫩 服务火辣 鸳鸯戏水 水中萧 指滑 🐻推 臀腿 阴推 过水 漫游 刮痧 毒龙 吹箫 深喉 口爆 丝袜 丝足 制服诱惑 舌吻 69 
 - 💰p1200/60分钟
-- pp2000/120分钟
-- ✌3500
-- ⚠️禁：打桩机，巨大，吃药，喝酒，du。
-- 🏦和平里
-<img src="images/bjs_dx_15.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
-<img src="images/bjs_dx_16.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
-<img src="images/bjs_dx_16.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+- 💰pp2000/120分钟
+- 💰3500/23-9/不限次
+- 🏦永定门（pp和包夜可上门+往返路费）
+<img src="images/bjs_dx_17.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_18.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_19.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 小雅
+- ❤️24/162/90/b
+- ❤️初来北京，多多关照
+- 💰p800/全套服务，制服诱惑，各种丝袜，漫游，口沙，口灌，毒龙，口爆，啪啪
+- 💰pp1200/包含800服务一次，可以口爆，可以啪啪，有地方可上门
+- ⚠️喝酒勿扰，不过夜。
+- 🏦北新桥（上门+来回路费）
+<img src="images/bjs_dx_20.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_21.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_dx_22.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">西城区</span>
 ### 雨一桐
@@ -503,6 +513,73 @@
 <img src="images/bjs_dx_yx2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">房山区</span>
+### 苍老师
+- ❤️172/115/🐻E
+- ❤️雪白无纹身，温柔会聊天，few好，不催不事
+- ❤️人照一致，天然无证，主动热情，新人，丰满肥臀，欧美身材
+- 🎁服务：漫游，胸推，指滑，69，舌吻，吹箫，鸳鸯浴，舔蛋，花式爱爱，制服诱惑，哥哥们有其他不过分的要求都可以尽量满足
+- 💰p1800
+- 💰pp3400
+- ❤️上课时间：下午到晚上
+- ⚠️禁：喝酒，嗑药，无T，禁后。
+- 🏦良乡，外出+200路费。
+<img src="images/bjs_fs_1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_4.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_5.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 朵朵
+- ❤️00后/168/86/B杯
+- ❤️南方妹妹，兼职
+- 🎁服务：助浴/指滑/丝袜/高跟/口爆/舌吻/69
+- 💰p1500
+- 💰pp2800
+- ⚠️禁：喝酒，嗑药。
+- 🏦琉璃河
+<img src="images/bjs_fs_6.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_7.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_8.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 琳琳
+- ❤️25/168/55/天然C杯
+- ❤️皮肤细腻 前凸后翘 温柔体贴 未婚未育特紧 乘务员已辞职刚下海 努力学习莞式
+- 🎁服务：拿手69/深喉/毒龙/乳交/丝袜足交/猛虎下山口/玉女望月/口/360度口/多款丝袜制服/舌漫游
+- 💰体验套餐：1000米（含Da火一节课项目少）
+- 💰A套餐：60分钟1300米（Da火或口爆一ci）
+- 💰B套餐：90分钟1800米（Da火或口爆二ci）
+- 💰C套餐：120分钟2200米（Da火或口爆无限）
+- ❤️陪浴：泡泡🐻推，地奴口火，口爆，指游，舌游，臀推，yin推，乳交恋足，丝袜制服
+- ❤️包夜3000/23-9点
+- ⚠️每天只接三单。
+- 🏦城关
+<img src="images/bjs_fs_9.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_10.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_11.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 沛沛
+- ❤️167/54/03年/天然E
+- ❤️第一次兼职，杭州人，丰满甜妹款
+- ❤️特点：特别白，敏感体质，可素颜见
+- ❤️高性价比，人照相符
+- 💰p1500/60分钟
+- 💰p2800/90分钟
+- 💰下午茶5200（不限）3小时
+- ⚠️禁：低素质，无T。
+- 🏦良乡
+<img src="images/bjs_fs_12.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_13.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 十里桃花
+- ❤️167/54/03年/天然E
+- ❤️第一次兼职，杭州人，丰满甜妹款
+- ❤️特点：特别白，敏感体质，可素颜见
+- ❤️高性价比，人照相符
+- 💰p1500/60分钟
+- 💰p2800/90分钟
+- 💰下午茶5200（不限）3小时
+- ⚠️禁：低素质，无T。
+- 🏦良乡
+<img src="images/bjs_fs_12.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_13.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_fs_11.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+
 
 ## <span style="color:red;">门头沟区</span>
 
