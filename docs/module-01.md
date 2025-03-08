@@ -292,7 +292,7 @@
 - ⚠️禁止：皮肤病，没素质，醉酒。
 - 💰一次1500/60分钟
 - 💰两次3000/90分钟
-- 🏦工作室：丰台
+- 🏦工作室：丰台长辛店
 <img src="images/bjs_ft_hb.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_ft_hb1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_ft_hb2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
@@ -323,7 +323,7 @@
 - 💰12000/包12小时
 - 🎁中间可以陪吃饭，看电影，打王者荣耀，英雄联盟
 - 🤝上班时间：中午12点到晚上12点。（特殊情况下可以晚一点）
-- 🏦北京市丰台区(自带高档公寓，安全好停车，十公里内可以外出)
+- 🏦北京市丰台区六里桥(自带高档公寓，安全好停车，十公里内可以外出)
 <img src="images/bjs_ft_xy.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_ft_xy1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_ft_xy2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
@@ -337,11 +337,105 @@
 - 💰2000/两次
 - 💰4500/包夜
 - 🎁服务热情待客如初恋，乖巧听话会配合，私密紧致热情主动。
-- 🏦丰台区
+- 🏦玉泉营
 <img src="images/bjs_ft_pp.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_ft_pp1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_ft_pp2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 <img src="images/bjs_ft_pp3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 盼盼
+- ❤️盼盼
+- ❤️20/165/95
+- ❤️大家好，我是盼盼，刚刚艺术学院毕业，我热爱唱歌，现在是某酒吧的主唱，目前没有男朋友 ，所以兼职做这个第一是身体需要，第二是赚点外快，我性格活泼开朗，喜欢开玩笑，我身材比例很好，素质高，我可以外出，也可以过来我的家里。
+- 🎁服务：调情，会撒娇哦，温柔可爱，可舌吻 可69 不催客 有耐心 懂配合 初恋般的感觉
+- 💰1600/一次
+- 💰2000/两次
+- 💰4500/包夜
+- 🎁服务热情待客如初恋，乖巧听话会配合，私密紧致热情主动。
+- 🏦马家堡
+<img src="images/bjs_ft_pp.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_pp1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_pp2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### Hana
+- ❤️175/D/60kg/00年
+- ❤️我是莹莹，英文名Hana，香港留学生。可以给领导舒适私密的“恋爱”环境，能上门，也能车震。
+- ❤️特点：嫩，可甜可御姐，女友系列，ENFG快乐小狗，给小哥哥无限的情绪价值，不抽烟没有纹身 ，不催，做人真诚，口活极好，给领导各种角色的体验感。
+- ❤️有很多衣服可以选哦：洛丽塔，高跟鞋，各种丝袜，情趣内衣 ，风格夜可以选择哦：可咸可甜，可御姐可甜妹。
+- 🎁服务：舌吻，陪浴，口，深喉，69，舔🐻，口爆，我是SM里的M，可以简单上写工具 ，请主人手下留情哦~
+- 💰p1800/一小时
+- 💰pp3500/两小时，上门 的话报销路费哦
+- 💰下午5500/六小时/限3次
+- 💰包天1W/24小时/限5次
+- 🎁只在平时工作日晚上，周末开，白天要念书。
+- ⚠️禁忌：不讲价，不玩无套，必须戴套，不见醉酒者，小时工，很大或者时间久提前和我说一下哦，
+- 🏦马家堡
+<img src="images/bjs_ft_1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 宝儿
+- ❤️166/90/02年/D
+- ❤️北京，圈外兼职，お元気- 私は少女です！。
+- ❤️天然无整，水汪汪大眼睛，肌肤雪白，前凸后翘，蜜桃臀，Hobby/画画，健身，瑜伽，普拉提，期待有缘人。
+- ❤️人照一致。
+- 💰p3000
+- 💰pp6000
+- ⚠️禁忌：酒驾，嗑药，无T，
+- 🏦南苑
+<img src="images/bjs_ft_4.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_5.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_6.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_7.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_8.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 晨曦
+- ❤️05年/162/88斤/b
+- ❤️来自山东。
+- ❤️助浴/调情/制服/丝袜/漫游/简单按摩/口 /爱爱。
+- 💰p1000/40分钟
+- 💰pp1800/90分钟
+- ⚠️禁忌：不夜，不外卖，不接喝酒，不接吃药，
+- 🏦羊坊
+<img src="images/bjs_ft_9.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_10.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 岚岚
+- ❤️23/168/92斤/c+
+- ❤️口每次S完不会马上吐掉，妹妹会含情默默的眼神望着你，慢慢吐在手里，给你AV的视觉体验，回马枪（再用温水帮你口含几分钟，回味无穷）。
+- ❤️上课时间：上午11点-凌晨1点。 
+- 💰一：1200/60分钟：陪浴，丝足，骑士，指滑，鼻息，胸漫，过水，舌漫，口罐，龙根包养，DL KB一次
+- 💰二：1400/90分钟：服务同一，制服，鸳鸯戏水，香舌采耳，水晶之恋，胯下口，360旋转，DL KB一次 KH一次或选莞式一次D60分钟
+- 💰三：1600/100分钟：服务同一 二，冰火，沙漠风暴，69互动，红椅洗臀，QQY YW DL KB两次
+- 💰四：1800/100分钟：服务同上，红椅或水墨二选一，kb一次 ZDB 莞式D一次
+- 💰五：2000/100分钟：服务同上 YJQ 莞式D两次
+- 💰双人组合：服务同一二，两次KB 2400/90分钟或莞式D两次2800/90分钟
+- 💰3000/10小时：服务同上 莞式D不限次
+- ⚠️禁忌：酒驾，du，嗑药，
+- 🏦六里桥
+<img src="images/bjs_ft_11.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_12.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 蕾蕾
+- ❤️171/100/00后
+- ❤️身材比例完美，可以根据哥哥要求制定穿衣。
+- ❤️可以提供充足的情趣价值，建议哥哥完事后可以探讨人生，比如劝我去考公务员哈哈哈✌。
+- ❤️学过按摩，可以帮哥哥按摩以下，保证舒适愉悦。
+- ❤️服务 ：69/🐍/口技精湛，甚是了得。
+- 走在街上回头率很高，高高瘦瘦得，该有得地方有肉，该瘦得地方很瘦
+- ❤️医院环境特别干净且安全，欢迎打针治疗+体验哦 
+- ❤️前期调情技术备受好评，特色鲜明，北京独一份，但是🈲三通
+- 💰p1200/pp1800/✌3000/限制3次
+- 💰p1500+特色套餐
+- ⚠️禁忌：三通，醉酒
+- 🏦北宫
+<img src="images/bjs_ft_13.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_14.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 悦悦
+- ❤️24岁/168/98/🐻C杯
+- ❤️南方人/网红。
+- ❤️高颜值，颜控，fw系主导，主动开放，各种配合，姿势多多。
+- ❤️FW项目：陪浴时水中萧，🐻推，臀推，指滑，KB，🐍，毒龙 ，冰火两重天，环绕，过水，漫游，高山流水，猴子偷桃，各种 制服，丝袜，高跟。
+- 💰p1600/60分钟
+- 💰pp2000/90分钟
+- ⚠️禁忌：醉酒，无T
+- 🏦分钟寺
+<img src="images/bjs_ft_15.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_ft_16.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">石景山区</span>
 
