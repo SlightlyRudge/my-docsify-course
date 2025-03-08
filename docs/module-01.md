@@ -415,7 +415,7 @@
 - ❤️身材比例完美，可以根据哥哥要求制定穿衣。
 - ❤️可以提供充足的情趣价值，建议哥哥完事后可以探讨人生，比如劝我去考公务员哈哈哈✌。
 - ❤️学过按摩，可以帮哥哥按摩以下，保证舒适愉悦。
-- ❤️服务 ：69/🐍/口技精湛，甚是了得。
+- 🎁服务 ：69/🐍/口技精湛，甚是了得。
 - 走在街上回头率很高，高高瘦瘦得，该有得地方有肉，该瘦得地方很瘦
 - ❤️医院环境特别干净且安全，欢迎打针治疗+体验哦 
 - ❤️前期调情技术备受好评，特色鲜明，北京独一份，但是🈲三通
@@ -429,7 +429,7 @@
 - ❤️24岁/168/98/🐻C杯
 - ❤️南方人/网红。
 - ❤️高颜值，颜控，fw系主导，主动开放，各种配合，姿势多多。
-- ❤️FW项目：陪浴时水中萧，🐻推，臀推，指滑，KB，🐍，毒龙 ，冰火两重天，环绕，过水，漫游，高山流水，猴子偷桃，各种 制服，丝袜，高跟。
+- 🎁FW项目：陪浴时水中萧，🐻推，臀推，指滑，KB，🐍，毒龙 ，冰火两重天，环绕，过水，漫游，高山流水，猴子偷桃，各种 制服，丝袜，高跟。
 - 💰p1600/60分钟
 - 💰pp2000/90分钟
 - ⚠️禁忌：醉酒，无T
@@ -441,7 +441,157 @@
 
 
 ## <span style="color:red;">海淀区</span>
-
+### 奥莉
+- ❤️01年/170/50/🐻D
+- ❤️江苏女孩。
+- ❤️配合度高，温柔体贴，欧美身材，温柔贴贴，性格超好，女友感真实，无赘肉，🐻大臀翘。
+- 🎁可口，🐍吻，69。
+- 💰一次1600
+- 💰两次3000
+- 💰不熟不夜
+- ⚠️不是职业，还请见谅不变态得都能配合。
+- 🏦 世纪城 
+<img src="images/bjs_hdq_1.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_2.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_3.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 大美
+- ❤️23/168/52/D
+- ❤️开课时间中午12点-凌晨1点
+- 💰套餐A：1400/60分钟：新人折后1200：莞式水墨水床，胸推臀腿，各种花式调情，鼻尖舌尖漫游，芊芊玉手，K活，制服诱惑，共释放一次，可口爆可啪
+- 💰套餐B：1800/90分钟：新人折后1600：包含A套餐所有内容，水床水墨，调情浪漫洗浴，激情K活，花式舔蛋，毒龙，69，等等，共释放两次，可K爆可啪。
+- 💰套餐C：2200/100分钟：新人折后2000：包含A+B套餐所有内容，且释放不限次数。
+- 💰包夜：2800/0点-9点（不限次）。
+- 🏦 五棵松 提供上🚪服务。
+<img src="images/bjs_hdq_4.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_5.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_6.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 橘子
+- ❤️00后/胸围D/身高164/97斤
+- ❤️皮肤白，胸大，腰细，S身材
+- 🎁服务：丝袜/高跟/情趣诱惑/口/接吻/六九/足交/陪浴/水中萧/配合度高
+- 💰p1000。
+- 💰pp2000。
+- ⚠️禁止：不议价，不闲聊，不三通，喝酒，抹药，无套。
+- 🏦  上地
+<img src="images/bjs_hdq_7.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_8.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_9.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_10.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 小迷糊
+- ❤️158/48/B
+- ❤️个人特点:    小巧可爱  皮肤白皙   身材苗条  肌肤软滑  粉嫩  紧致
+- ❤️个人爱好:  喝酒蹦迪  游戏吃鸡 王者50颗星  吃饭，逛街
+- ❤️有工作室，自己住的，也可以上门
+- 🎁个人服务:   吃鸡很溜   舌头软滑   口活一流   69调情   陪浴舌吻   制服jk   情趣内衣   
+- 💰p1200/45分钟。
+- 💰pp2000/90分钟。
+- 💰夜4000/8小时。
+- 🏦  学院路
+<img src="images/bjs_hdq_11.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_12.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_13.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 林菲儿
+- ❤️99年/165/46/真🐻C
+- ❤️四川成都人，瑜伽教练，无纹身，皮肤雪白
+- ❤️敏感体质，一碰就出水
+- ❤️造型高跟鞋丝袜，各种风情衣服一应俱全
+- 🎁可📷，陪浴，舌，口，69
+- 💰p1500。
+- 💰pp2500。
+- 💰可上🚪。
+- 🏦  马连洼
+<img src="images/bjs_hdq_14.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_15.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 林菲儿
+- ❤️04年/163/胸c
+- ❤️在校大学生兼职，可看身份证
+- ❤️皮肤白嫩，没有纹身 ，南方温柔小嫩妹
+- ❤️性格活泼，女友感满满
+- 🎁爱好：洛丽塔，jk，cos（做你得小甜妹）可kiss，舌吻，69，女友式fw
+- 💰p1800。
+- 💰pp3500。
+- 💰✌5500。
+- ⚠️拒绝酒后，大，久，嗑药。
+- 🏦  学院路 
+<img src="images/bjs_hdq_16.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_17.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 熙熙家(工作室)
+- ❤️不玩套路，不办卡，不机车，不崔钟，诚信服务，方便停车，十年老店。
+- ❤️加项服务：三通+500，潮喷+500，sm+500，吞精+300
+- 🎁舌吻/陪浴/胸推/臀推/无套口/指滑/丝袜高跟鞋/蜻蜓点水/69/漫游/情趣制服/深喉/冰火/毒龙/四条龙/鼻息/指交
+- 💰套餐一：1200/60分钟/一次：🐍吻。陪浴。胸推。臀腿。无套口。指滑。丝袜高跟。蜻蜓点水。69.漫游 （D活或口爆任选）
+- 💰套餐二：1600/90分钟/两次：多种制服丝袜可选，强奸式丝袜。🐍吻。陪浴。胸推。臀腿。无套口。指滑。丝袜高跟。蜻蜓点水。69.漫游 （D活或口爆任选）
+- 💰套餐三：1800/120分钟/三次：个别人员+特色服务(裸亲手脚)。多种制服丝袜可选，强奸式丝袜。🐍吻。陪浴。胸推。臀腿。无套口。指滑。丝袜高跟。蜻蜓点水。69.漫游 （D活或口爆任选）
+- 💰夜3500/12-8：30包含套餐三项目
+- 🏦  中关村
+<img src="images/bjs_hdq_18.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_19.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_20.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_21.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_22.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_23.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_24.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_25.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 星星
+- ❤️166/90/c
+- ❤️服务态度非常好，气质优雅大方，皮肤雪白粉嫩
+- ❤️04年兼职学生，真实个人，温柔细心，做事认真复制
+- 🎁鸳鸯戏水，制服丝袜，调情，口活，指滑，胸推，海底捞月，啪啪，69，口爆，舌吻，冰火 ，按摩，陪浴，可双飞，情趣角色扮演，不催不事，无T口，深喉，丝袜，制服诱惑
+- 💰p1200/55分钟 
+- 💰pp2000/100分钟 
+- ⚠️🈲醉酒，🈲无套。
+- 🏦牡丹园（外出+往返路费）
+<img src="images/bjs_hdq_26.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_27.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_28.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 雅露
+- ❤️21/165/48kg/c+
+- ❤️个人爱好：运动跑步，逛街，旅游。
+- ❤️个人特点：胸器饱满，蜜桃臀，颜值可爱，温柔贴贴，声音甜美，皮肤白，女友系小风骚。
+- 🎁服务内容：吃鸡很溜，浴室，69调情，情趣内衣，对镜玩，深喉，波推，不过分要求都配合！
+- ⚠️温馨提示：不接喝酒，吃药，身上有皮肤病，无套，珍爱生命，安全第一。
+- 💰一次1200/45分钟
+- 💰二次2100/100分钟
+- 💰下午茶2500/三小时
+- 💰夜3500/23：00-7：00(限3次)
+- 🤝有工作室自己住，也可附近上面，开房
+- 🏦西三旗
+<img src="images/bjs_hdq_29.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_30.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_31.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_32.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 耶耶
+- ❤️172/03年/46kg
+- ❤️极品网红耶耶，兼职
+- ❤️甜御，高瘦白，细腰，蜜桃臀，大长腿，皮肤超级白嫩 。
+- ❤️上下三点粉，会吸会夹！
+- ❤️真实平面淘宝模特。
+- 💰p2500
+- 💰pp5000
+- 💰下午茶2500/三小时
+- 💰夜11000
+- 🤝只见有素质哥哥
+- 🏦紫竹桥
+<img src="images/bjs_hdq_33.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_34.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_35.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_36.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+### 柚柚
+- ❤️164/47/🐻D
+- ❤️中日混血，中日英三语交流没问题，千禧年小🐉女，无纹身，乖乖女，超反差，有努性，外露癖，真空户外超级兴奋，待小哥哥，小爸爸 调教，私房模特，可拍露脸视频照片室内外任选，参加过多次人像 摄影模特。
+- ❤️私房室内拍摄1000/120分钟
+- ❤️私房室外拍摄，公园，商场，宜家地方你选择，快闪1500/120分钟
+- 💰A：p1200/60分钟：陪浴，奶炮，🐻滑，鼻吸，漫游，口爆
+- 💰B：pp1800/90分钟：陪浴，奶炮，舌kiss，🐻滑，臀滑，鼻吸，漫游，吸皮 ，毒龙，69，口爆，深喉，丝袜，情趣内衣
+- 💰早茶：3小时2800
+- 💰下午茶：5小时3800
+- 💰夜：11-8点5800
+- 💰全天：任选24小时6800
+- 🤝禁止醉酒，大声喧哗
+- 🏦地点：五棵松
+<img src="images/bjs_hdq_37.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_38.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
+<img src="images/bjs_hdq_39.jpg" alt="UX - User Experience" style="width:100%; max-width:100vw; height:auto; display:block;">
 
 ## <span style="color:red;">顺义区</span>
 ### 沐沐
@@ -449,12 +599,12 @@
 - ❤️18+/95/164/B+
 - ❤️我是重庆女生，我不上镜，本人据对比照片好看的多，现在高三，偷偷兼职有学生证，身份证可以验证，另外我的身体属于敏感体质，很容易高潮，一天只约2位，多了腿麻走路都困难。
 - ❤️优点：皮肤雪白嫩滑光滑，一直都是全班最白的一个，因为皮肤白所以我都是素颜，腰细屁股大，声音好听，身材好(但是有肉不是那种一身排骨)乳头和下面都是粉红色，全身无疤痕，无纹身，不抽烟，不喝酒。
-- ❤️道具：有制服，学生服，萝莉服，洛克塔服，各种颜色丝袜，也可以接受哥哥们带来的衣服。
+- 🎁道具：有制服，学生服，萝莉服，洛克塔服，各种颜色丝袜，也可以接受哥哥们带来的衣服。
 - ❤️我主打年轻白嫩漂亮清纯学生，不是服务系，但是我写的服务一定会做到，不会的服务我会全力配合。
 - ❗️贴别提醒：下面长度超过16公分的不约，太粗的也不行，因为我下面太紧了，且子宫特别浅，另外：不做无套，不做三通SM，不接喝酒的。
 - 🎁服务：口吹/咬耳朵/舌吻/69/亲咪咪/果冻/调情/激情啪啪。
 - 💰一次1600/40分钟
-- 💰两次2000/80分钟
+- 💰两次2800/80分钟
 - 💰4000/2小时
 - 💰5000/三小时 可陪吃饭 看电影 各种娱乐活动
 - 💰7000/六小时 可伴游 逛街吃东西看电影
